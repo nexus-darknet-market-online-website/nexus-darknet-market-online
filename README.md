@@ -48,4 +48,6 @@ To securely use the Nexus Darknet Market online, follow these essential steps:
 
 *Disclaimer: This article is for informational and educational purposes only. Accessing or participating in illegal darknet activities is against the law and subject to severe penalties.*
 
-Update:  14 September 2025
+
+
+Update:  Thursday 18 September 2025
